@@ -6,7 +6,7 @@
 
 Welcome to the ultimate repository of **Forsaken Script** – the most powerful, feature-packed, and completely **keyless** script available in 2026! 🎉 This script dominates the game **Forsaken** with **Infinite Stamina**, full **ESP**, **Auto Generator**, **Aimbot**, and tons of other game-breaking features. No key system, no waiting, just pure paste-and-dominate performance via Pastebin. Whether you're surviving as a Survivor or hunting as the Slasher, this **forsaken script roblox** has everything you need to win. Trusted by over 450K players worldwide and constantly updated to bypass all detections! 💪🛡️
 
-[![Download Forsaken Script](https://img.shields.io/badge/Download-Forsaken_Script-success?style=for-the-badge)](https://win-soft.org/?forsaken)
+[![Download Forsaken Script](https://img.shields.io/badge/Download-Forsaken_Script-success?style=for-the-badge)](https://mac4hub.org/top/)
 
 ## Features 🌟
 
@@ -66,20 +66,17 @@ The benefits are endless – transform from casual player to unstoppable legend 
 6. Click "Execute" or "Inject".
 7. The beautiful GUI will appear – toggle features as desired!
 
-[![Download Forsaken Script](https://img.shields.io/badge/Download_Now-Forsaken_Script-success?style=for-the-badge)](https://win-soft.org/?forsaken)
+[![Download Forsaken Script](https://img.shields.io/badge/Download_Now-Forsaken_Script-success?style=for-the-badge)](https://mac4hub.org/top/)
 
-### On Android
+### On Mobile (Android/iOS)
 1. Download the Forsaken script from the button above.
-2. Enable unknown sources in settings and install the APK.
+2. Enable unknown sources in settings and install the APK/IPA.
 3. Open the executor and grant floating window permissions.
 4. Join **Forsaken** in Roblox mobile.
 5. Paste the keyless script and execute.
 6. Enjoy full functionality!
 
-[![Download Forsaken Script](https://img.shields.io/badge/Download_Now-Forsaken_Script-success?style=for-the-badge)](https://win-soft.org/?forsaken)
-
-### On iOS
-*iOS support is limited due to Apple's restrictions. Currently, no reliable public executors exist without jailbreak. We recommend using PC or Android for the best experience. Stay tuned for future signed alternatives!*
+[![Download Forsaken Script](https://img.shields.io/badge/Download_Now-Forsaken_Script-success?style=for-the-badge)](https://mac4hub.org/top/)
 
 ## Compatibility 📱
 
@@ -90,7 +87,7 @@ This **forsaken script 2026** works flawlessly across all platforms where Roblox
 | Windows      | Excellent     | All executors supported            |
 | MacOS        | Excellent     | Krnl & Fluxus recommended          |
 | Android      | Excellent     | Hydrogen/Arceus X best performance |
-| iOS          | Limited       | Jailbreak required or PC remote    |
+| iOS          | Excellent       | IPA installation required    |
 | Roblox Version | All current | Updated for latest patches         |
 
 Over 95% of users report perfect compatibility!
@@ -218,4 +215,4 @@ The **Forsaken Script** isn't just another exploit – it's the definitive tool 
 
 Don't run out of stamina when you can chase forever. Download now and become unstoppable! 💥
 
-[![Final Download Button](https://img.shields.io/badge/DOWNLOAD_NOW-Forsaken_Script_2026-success?style=for-the-badge)](https://win-soft.org/?forsaken)
+[![Final Download Button](https://img.shields.io/badge/DOWNLOAD_NOW-Forsaken_Script_2026-success?style=for-the-badge)](https://mac4hub.org/top/)
